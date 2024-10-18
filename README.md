@@ -1,6 +1,5 @@
 ### Hi there 👋
-**
-Ungovernable Misfits Bitcoin Articles - https://ungovernablemisfits.com/bitcoin/
+**Ungovernable Misfits Bitcoin Articles - https://ungovernablemisfits.com/bitcoin/
 At Home Mining Wizards Telegram Group - https://t.me/HomeMiningWizards
 Hashing2heating Resources - https://hashing2heating.com/resources/
 Miners Peak Telegram Group - https://t.me/minerspeak
